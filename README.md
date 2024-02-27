@@ -1,6 +1,6 @@
 # 飞云机场官网地址
 
-最新地址：[fyun.cf](https://fyun.cf/auth/register?code=2ME149)
+最新地址：[fyun1.win](https://a.fyun1.win/auth/register?code=2ME149)
 
 ## 飞云机场简介
 
